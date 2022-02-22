@@ -2,4 +2,4 @@
 
 
 
-FHe m.Dollar/La SWIFTToken... WADCHAIN...
+FHe m.Dollar/La SWIFTToken... WADCHAIN...🇧🇷📱💩
